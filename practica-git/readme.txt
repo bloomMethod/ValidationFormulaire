@@ -1,1 +1,0 @@
-preparacion para la entrevista
